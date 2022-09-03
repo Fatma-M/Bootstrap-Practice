@@ -1,0 +1,1 @@
+https://gloozzoom.netlify.app/
